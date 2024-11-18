@@ -1,5 +1,5 @@
 # Disclaimer
-Tue, 19-nov'2024
+Tue, 19th-Nov-2024
 
 Note
 
